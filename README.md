@@ -1,2 +1,2 @@
 # Queens-student-page-CISC-121-
-Please give me some comment and hope who read this have a good day!
+Please feel free to leave me some comments or feedback. I hope everyone who visits this page has a great day!
